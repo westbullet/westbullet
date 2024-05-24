@@ -20,8 +20,7 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀robin + boothill = +1000 HP
 
 ⠀
-![image](https://github.com/westbullet/westbullet/assets/161955902/9237edcd-bd4a-477f-aa07-94a7e0c82fec)
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀thats robin n' me if u even care
+https://media.discordapp.net/attachments/1239523174865960960/1243616446324543549/432_sin_titulo_20240524192725.png?ex=66521f92&is=6650ce12&hm=f016963f2721ee45aac6389a04f34c0946c465ec9ab96900e4000f09bec05f6c&=&format=webp&quality=lossless&width=1260&height=420⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀thats robin n' me if u even care
 ⠀
 ⠀
 ⠀

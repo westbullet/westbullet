@@ -4,12 +4,12 @@
 ⠀
 ⠀
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀by⠀tao,⠀he/him.⠀DO⠀NOT⠀INSPO!⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀'' looky here, cutie, cutie, cutie! ''
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀C+H is okay! robinhill lover.
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀by⠀luciel,⠀he/him.⠀DO⠀NOT⠀INSPO!⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀'' don't fear! your beloved seven is here! ''
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀C+H is okay! defender of justice !!
 
 
-![image](https://github.com/westbullet/westbullet/assets/161955902/c6b187a6-1a89-4cfe-b8be-ba3497403fc2)
+![sven1](https://github.com/westbullet/westbullet/assets/161955902/b17ada8c-ca3e-48ac-98a3-3d66ae8463f3)
 
 ⠀
 ⠀
@@ -19,8 +19,8 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀i absolutely love editing photos just like i edited my prof.
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀robin + boothill = +1000 HP
 
-⠀
-https://media.discordapp.net/attachments/1239523174865960960/1243616446324543549/432_sin_titulo_20240524192725.png?ex=66521f92&is=6650ce12&hm=f016963f2721ee45aac6389a04f34c0946c465ec9ab96900e4000f09bec05f6c&=&format=webp&quality=lossless&width=1260&height=420⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀thats robin n' me if u even care
+⠀![sven3](https://github.com/westbullet/westbullet/assets/161955902/8bd84d63-2557-4ad8-9700-bdcbe30733d8)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀        ⠀⠀⠀⠀⠀thats  me if u even care
 ⠀
 ⠀
 ⠀
